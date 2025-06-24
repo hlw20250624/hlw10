@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl411.pages.dev/">黑料社</a>
 
-点击访问：<a href="https://hl401.pages.dev/料社-今日黑料</a>
+点击访问：<a href="https://hl401.pages.dev/">料社-今日黑料</a>
 
 点击访问：<a href="https://hl414.pages.dev/">黑料社今日黑料首页</a>
 
